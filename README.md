@@ -1,2 +1,4 @@
 # hello-world
-First try on GitHub
+Hi ,
+You are so bored. 
+By a late learner think he can acheive whatever he wants
